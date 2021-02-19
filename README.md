@@ -1,2 +1,0 @@
-# Atividade-PSI
-Cap03
